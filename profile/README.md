@@ -3,8 +3,8 @@
 **Dmwin Game** is a popular platform designed for players who love bonuses! From **Registration Bonuses** to **First Deposit Bonuses**, **Member Bonuses**, and **Video Bonuses**, Dmwin ensures every player gets rewarded. If you haven’t joined yet, now’s the time to experience the excitement!
 
 ## Register and Login
-- ### [Register on Dmwin Game](https://gamelogin.in/diuwin/)
-- ### [Login on Dmwin Game](https://gamelogin.in/diuwin/)
+- ### [Register on Dmwin Game](https://gamelogin.in/dmwin/)
+- ### [Login on Dmwin Game](https://gamelogin.in/dmwin/)
 
 ---
 
@@ -82,7 +82,7 @@ Dmwin Games is an engaging gaming platform that combines **fun**, **strategy**, 
 
 ---
 
-For more information and to download the app, visit the official [Dmwin Game Website](https://gamelogin.in/diuwin/).
+For more information and to download the app, visit the official [Dmwin Game Website](https://gamelogin.in/dmwin/).
 
 ---
 
