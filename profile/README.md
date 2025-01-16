@@ -1,4 +1,4 @@
-# Dmwin Game: The Ultimate Gaming Platform
+# Dmwin
 
 **Dmwin Game** is a popular platform designed for players who love bonuses! From **Registration Bonuses** to **First Deposit Bonuses**, **Member Bonuses**, and **Video Bonuses**, Dmwin ensures every player gets rewarded. If you haven’t joined yet, now’s the time to experience the excitement!
 
